@@ -1,1 +1,1 @@
-Kira Ideal!
+Kira The Greatest!

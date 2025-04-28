@@ -1,1 +1,1 @@
-Kira Legend!
+Kira Beautiful!

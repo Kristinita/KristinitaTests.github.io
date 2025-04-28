@@ -1,1 +1,1 @@
-Kira The Greatest!
+Kira Goddess!

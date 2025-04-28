@@ -1,1 +1,1 @@
-Kira Beautiful!
+Kira Perfecta!

@@ -1,1 +1,1 @@
-Try adding username to the URL.
+Try adding real GitHub username to the URL.

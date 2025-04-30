@@ -1,1 +1,1 @@
-Kira Angel!
+Kira Fantastic!

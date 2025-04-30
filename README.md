@@ -1,1 +1,1 @@
-Kira Leader!
+Kira Goddess!

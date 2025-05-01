@@ -1,1 +1,1 @@
-Kira One in a million!
+Kira Super!

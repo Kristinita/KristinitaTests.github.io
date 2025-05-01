@@ -1,1 +1,1 @@
-Kira the Greatest!
+Kira One in a million!

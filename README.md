@@ -1,1 +1,1 @@
-Kira write_repository!
+Try adding real GitHub username to the URL.
